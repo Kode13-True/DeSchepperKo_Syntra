@@ -1,2 +1,0 @@
-# DeSchepperKo_Syntra
-Test
